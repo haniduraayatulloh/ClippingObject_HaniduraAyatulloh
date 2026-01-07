@@ -1,0 +1,1 @@
+# ClippingObject_HaniduraAyatulloh
